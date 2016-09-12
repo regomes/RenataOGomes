@@ -1,1 +1,4 @@
 # RenataOGomes
+
+I'm an international stuent from Brazil, currently a freshman at Indiana University Bloomington, with a major in Journalism and a minor in Graphic Design. I'm currently working as a Page Designer for the Indiana Daily Student, in Bloomington,IN. Previously, I've done some work as a Page Designer for the Press Agency in several Model UN Conferences. You can see samples of my work in this website in Portuguese and in English.
+When I'm not at work, I enjoy travelling, riding the bus (I think that is the best way to get to know a new town) and drinking lots of coffee. No, seriously, I am ALWAYS with a cup of coffee in my hand. Also, I love to learn new things. Now, I'm working on my French skills and learning some programming. I am passionate about literature and photography, and teaching others the things I love. 
